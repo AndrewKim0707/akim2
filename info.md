@@ -12,13 +12,13 @@ Andrew Kim
 
 3. Social Media Information
 
-Facebook (Fyre55)
+Facebook: Fyre55
 
 4. Brag Sheet
 
-Job (Web Designer)
+Job: Web Designer
 
-Hobby (Golf)
+Hobby: Golf
 
-Award (2nd Degree Black Belt) 
+Award: 2nd Degree Black Belt
 
